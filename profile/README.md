@@ -45,4 +45,4 @@ Under the leadership of **Pat Cummins**, SRH will be eager to bounce back and de
 The upcoming clash between **Delhi Capitals** and **Sunrisers Hyderabad** is set to be a captivating encounter, with both teams aiming to assert their dominance in the IPL 2025 season. Fans can anticipate a match filled with strategic plays, individual brilliance, and the unpredictable excitement that the IPL consistently delivers.
 
 ---
-[For more info](https://skylen.in/delhi-capitals-vs-sunrisers-hyderabad-preview-prediction/)
+[Skylen.in](https://skylen.in/)
